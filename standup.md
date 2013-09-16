@@ -14,3 +14,7 @@ clothing styles
 food  
 sports teams  
 
+## Not Writing Shit Down ##
+waiters really piss me off, right down my damn order  
+it would be impossible for me to care less about your memorization
+skills, I simply want my food exactly the way I ordered it!  
