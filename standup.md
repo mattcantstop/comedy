@@ -21,5 +21,11 @@ skills, I simply want my food exactly the way I ordered it!
  - speakers. We don't care about your memorization skills, just use some
    visual cues and don't get stuck!
 
+##Things Are Not As They Seem##
+Singing. I am horrible at it. But I didn't know this for so long!  
+I was thinking other people sucked, little did I know  
+
+
+
 
  
