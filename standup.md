@@ -30,4 +30,7 @@ Is this really a good thing?
 I am leaving you for a biker with a neck tattoo. Great!
 
 
- 
+## Self Image ##
+hairline in pictures...damnit...
+roles for movies "we're looking for a fatass, you're perfect"
+What about when your manager tells you your perfect for it? 
