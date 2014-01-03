@@ -25,9 +25,14 @@ skills, I simply want my food exactly the way I ordered it!
 Singing. I am horrible at it. But I didn't know this for so long!  
 I was thinking other people sucked, little did I know  
 
-## Mmmm, That Warmed Up My Feet
+## I Have A Surprise For You! ##
+Is this really a good thing? 
+I am leaving you for a biker with a neck tattoo. Great!
 
+## Mmmm, That Warmed Up My Feet
 Sitting on the couch, opening the blinds.
 
-
- 
+## Self Image ##
+hairline in pictures...damnit...
+roles for movies "we're looking for a fatass, you're perfect"
+What about when your manager tells you your perfect for it? 
