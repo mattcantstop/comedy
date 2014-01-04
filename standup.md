@@ -35,4 +35,8 @@ Sitting on the couch, opening the blinds.
 ## Self Image ##
 hairline in pictures...damnit...
 roles for movies "we're looking for a fatass, you're perfect"
-What about when your manager tells you your perfect for it? 
+What about when your manager tells you you're perfect for it? 
+
+## Waiting In The Lobby of Restaurant To Be Seated
+People checking if others are getting ahead. 
+Diligently tracking the estimates others have. 
